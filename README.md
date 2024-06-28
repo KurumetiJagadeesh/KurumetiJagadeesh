@@ -17,7 +17,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1N1Dw-vqobEMtglnJFepFXQN_X6lpyD_Z/view?usp=sharing](https://drive.google.com/file/d/1N1Dw-vqobEMtglnJFepFXQN_X6lpyD_Z/view?usp=sharing)
 
-- ⚡ Fun fact **I gamer**
+- ⚡ Fun fact **I am a gamer**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
